@@ -50,6 +50,7 @@
 ![HighresScreenshot00000](https://github.com/user-attachments/assets/6b34abd1-af8a-4852-913b-b91227fe1cba)
 ![HighresScreenshot00001](https://github.com/user-attachments/assets/5e3d4363-1e52-41bf-b4f6-fc42a6a01283)
 ![HighresScreenshot00002](https://github.com/user-attachments/assets/5d4d4450-c6d5-43a6-a3f1-66d4bee72a76)
+![HighresScreenshot00006](https://github.com/user-attachments/assets/9c0dcb1b-1aba-4b67-b321-533670912dba)
 
 ## Things to do
 
